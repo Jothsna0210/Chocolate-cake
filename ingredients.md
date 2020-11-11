@@ -1,0 +1,1 @@
+Choco powder = 2 tablespoons, self-raising flour = 4 tablespoons, sugar = 4 tablespoons, egg = 1(optional), milk = 4 tablespoons(if needed can put extra to get the right consistency), baking powder = 1/2 teaspoon(if egg not added then 1 tablespoon is recommendable), vegetable oil = 4 tablespoons, chocolate syrup(melted chocolate can also be used){optional}.
